@@ -37,7 +37,7 @@ In my journey, I've learned the importance of empathy and understanding the huma
 
 ### Let's Connect!
 
-I invite you to join me on this exciting journey. If you are looking for someone dynamic, passionate, and skilled in creating innovative software solutions, let's connect on [LinkedIn](https://www.linkedin.com/in/sivakumar-manoharan). Together, we can explore how technology can drive your organization forward and create immense value.
+I invite you to join me on this exciting journey. If you are looking for someone dynamic, passionate, and skilled in creating innovative software solutions, let's connect on [LinkedIn](https://www.linkedin.com/in/sivakumarmano). Together, we can explore how technology can drive your organization forward and create immense value.
 
 Thank you for taking the time to read my story. I look forward to the opportunity to connect and create something remarkable together.
 
