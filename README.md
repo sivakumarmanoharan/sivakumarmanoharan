@@ -44,5 +44,5 @@ Thank you for taking the time to read my story. I look forward to the opportunit
 ---
 
 📫 How to reach me:
-- Email: manoha61@uwindsor.ca
+- Email: siva.ms2000@gmail.com
 - Phone: (226) 961-9848
