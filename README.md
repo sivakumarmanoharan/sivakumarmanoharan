@@ -6,7 +6,7 @@ Ever since childhood, I've been fascinated by the world of numbers and math, whi
 
 ### About Me
 
-I'm a master's student at the University of Windsor, pursuing Applied Computing. This academic journey has provided me with opportunities to upskill and dive into the world of data science and machine learning to solve contemporary challenges.
+I'm a masters graduate in applied computing at the University of Windsor. This academic journey has provided me with opportunities to upskill and dive into the world of data science and machine learning to solve contemporary challenges.
 
 ### My Tech Stack
 
